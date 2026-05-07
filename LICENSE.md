@@ -1,4 +1,4 @@
-
+Experience blue lock rivals like never before with automatic Scripts for blue lock rivals, the #1 Script. Includes no clip and auto-collect for
 
 
 
